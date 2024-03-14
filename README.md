@@ -1,0 +1,1 @@
+# skilwill17lekciamravalgverdi
